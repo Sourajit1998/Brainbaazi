@@ -1,2 +1,2 @@
-Nice one..bt wud b better if u improve d design part
+An option to skip a question can be added..also you can make use of Google time!!  
 # Brainbaazi
